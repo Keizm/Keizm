@@ -15,6 +15,7 @@
  Artist, Musician, Developer <br>
  Antisocial, Yet I love making new friends <br>
  Not a native english speaker <br>
+  (still working on this, please be patient with me)
 </p>
 
 
