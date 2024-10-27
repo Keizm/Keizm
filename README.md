@@ -1,7 +1,8 @@
-<!DOCTYPE html>
-<html>
-<body>
-    <p> im working on this iswaere </p>
 
-</body>
-</html>
+<p align="center">
+<b> Haji, Raiden, Whatever.</b>
+</p>
+
+<p align="center">
+  <img src="https://fridaynightfunkin.wiki.gg/images/c/c9/BFCheerPose.gif" />
+</p>
