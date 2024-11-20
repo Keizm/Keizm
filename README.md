@@ -21,7 +21,7 @@ I sit on Pony Town almost daily! Usually semi afk  <br>
 I am mostly a dry texter <br>
 (, yet I tend to get real hyper once I am comfortable with you) <br>
 Autistic, sometimes I need tonetags when we are joking around <br>
-I use most tone tags unironically <br>
+I use most emoticons unironically <br>
 ﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉୨♡୧﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉﹉<br> 
 </p>
 <p align="center">
