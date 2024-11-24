@@ -29,7 +29,7 @@ I use most emoticons unironically <br>
 </p>
 <p align="center">
 Please note I am not an native english speaker, nor I can express my self very well  <br>
-I enjoy a lot of media, such as Stardew Valley, Arcane, Splatoon, Friday Night Funkin  <br>
+I enjoy a lot of media, such as Stardew Valley, Deltarune, Arcane, Splatoon, Friday Night Funkin  <br>
 (other NG media too), Ultrakill, and lots of, lots of more <br>
 You can sit with me anytime I am alone! no need to ask :] <br>
   ‎ <br>
